@@ -1,1 +1,0 @@
-# paint-github-e68c5
